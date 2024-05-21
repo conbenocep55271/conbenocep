@@ -1,1 +1,1 @@
-The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
+The introduction of Video Assistant Referee (VAR) technology has impacted the game by allowing officials to review key decisions, reducing controversial calls.
