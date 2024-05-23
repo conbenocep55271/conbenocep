@@ -1,1 +1,1 @@
-Soccer has the power to transcend cultural and political divides, as seen in instances of soccer diplomacy, such as the "ping-pong diplomacy" between the US and China in the 1970s.
+Zinedine Zidane's volleyed goal for Real Madrid against Bayer Leverkusen in the 2002 UEFA Champions League final is often cited as one of the greatest goals in Champions League history.
