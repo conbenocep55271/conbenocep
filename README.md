@@ -1,1 +1,1 @@
-Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
+FC Barcelona's "Tiki-taka" style of play, characterized by quick passing and movement, revolutionized modern soccer under coach Pep Guardiola.
