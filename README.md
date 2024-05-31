@@ -1,1 +1,1 @@
-Lionel Messi and Cristiano Ronaldo are considered two of the greatest players of their generation, each winning multiple Ballon d'Or awards.
+The "Samba style" of Brazilian soccer is characterized by skillful dribbling, quick passing, and an emphasis on flair and creativity.
