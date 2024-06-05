@@ -1,1 +1,1 @@
-The "Catenaccio" defensive system, pioneered by Italian teams in the mid-20th century, prioritizes tight defensive organization and counter-attacking play.
+The FIFA Women's World Cup has grown in popularity and prestige, with the United States winning the tournament four times as of 2019.
