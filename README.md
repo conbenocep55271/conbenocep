@@ -1,1 +1,1 @@
-The FIFA Women's World Cup has grown in popularity and prestige, with the United States winning the tournament four times as of 2019.
+Soccer fandom encompasses a wide range of traditions and rituals, from singing chants and waving banners to performing elaborate pre-match rituals.
