@@ -1,1 +1,1 @@
-Soccer fandom encompasses a wide range of traditions and rituals, from singing chants and waving banners to performing elaborate pre-match rituals.
+Diego Maradona's "Hand of God" goal and "Goal of the Century" against England in the 1986 World Cup quarter-final are iconic moments in soccer history.
