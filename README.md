@@ -1,1 +1,1 @@
-The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
+Cristiano Ronaldo is the all-time leading goal scorer in UEFA Champions League history, with over 130 goals to his name.
