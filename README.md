@@ -1,1 +1,1 @@
-The "Catenaccio" defensive system, pioneered by Italian teams in the mid-20th century, prioritizes tight defensive organization and counter-attacking play.
+The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
