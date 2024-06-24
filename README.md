@@ -1,1 +1,1 @@
-The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
+The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
