@@ -1,1 +1,1 @@
-Zinedine Zidane's volleyed goal for Real Madrid against Bayer Leverkusen in the 2002 UEFA Champions League final is often cited as one of the greatest goals in Champions League history.
+Soccer fandom encompasses a wide range of traditions and rituals, from singing chants and waving banners to performing elaborate pre-match rituals.
