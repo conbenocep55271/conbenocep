@@ -1,1 +1,1 @@
-Soccer fandom encompasses a wide range of traditions and rituals, from singing chants and waving banners to performing elaborate pre-match rituals.
+The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
