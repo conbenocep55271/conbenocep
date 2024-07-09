@@ -1,1 +1,1 @@
-Pelé, widely regarded as one of the greatest soccer players of all time, won three World Cups with Brazil in 1958, 1962, and 1970.
+The "Superclásico" between Argentine clubs Boca Juniors and River Plate is one of the fiercest derbies in South American soccer.
