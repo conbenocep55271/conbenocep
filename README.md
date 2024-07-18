@@ -1,1 +1,1 @@
-Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
+The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
