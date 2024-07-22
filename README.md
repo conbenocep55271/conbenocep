@@ -1,1 +1,1 @@
-The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
+Real Madrid is the most successful club in UEFA Champions League history, winning the tournament 13 times as of 2022.
